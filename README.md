@@ -1,2 +1,2 @@
 # digitalchriscopley.github.io
-Self Care e-Laerning
+Self Care e-Learning
